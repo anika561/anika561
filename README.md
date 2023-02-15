@@ -9,4 +9,3 @@
 - 💬 Ask me about anything.
 - 😄 Pronouns: She/ Her
 - 👯 My Scratch Account [link](https://scratch.mit.edu/users/anika18-04/)
-- 
